@@ -1,1 +1,2 @@
-# white-dragon-duke-pendragon
+# White Dragon Duke: Pendragon
+Né comme le successeur d’une famille noble de bas rang, Raven Varte porte le péché d’avoir comploté une rébellion contre l’empire. Pour être amnistié, il a été envoyé pour combattre les démons aux côtés du pire corps de l’empire, le corps « Démon ». On dit que c’est un endroit où la plupart des gens ne survivront même pas un an, mais Raven a réussi à survivre pendant dix ans. Alors que son amnistie était devant ses yeux, sur son dernier champ de bataille, il a rencontré le « successeur de la maison du duc Pendragon, Ellen Pendragon ».
